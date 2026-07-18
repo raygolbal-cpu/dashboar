@@ -1,1 +1,1 @@
-# Socio or ejecutivos 2026
+# Socio por ejecutivos 2026
